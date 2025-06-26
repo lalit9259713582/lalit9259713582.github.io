@@ -1,2 +1,2 @@
-# lalit9259713582.github.io
+# lalitog.github.io
 My personal website 
